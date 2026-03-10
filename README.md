@@ -1,1 +1,1 @@
-Proect by Anthony Ashkinadze, Eugene Ashkinadze, Alexa, Ibrahim
+Project by Anthony Ashkinadze, Eugene Ashkinadze, Alexa, Ibrahim
